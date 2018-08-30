@@ -1,3 +1,0 @@
-fack
-fuck
-ffckk
